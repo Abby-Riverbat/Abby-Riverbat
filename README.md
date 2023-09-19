@@ -1,4 +1,4 @@
-- 👋 # Hello, I'm Abby Riverbat 👋
+- 👋 # Hello, I'm Arby Riverbat 👋
 
 ## About Me
 
